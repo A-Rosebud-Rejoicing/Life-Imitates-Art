@@ -4,6 +4,18 @@ _Autobiographical Fairy Tale Series - Product Management_
 
 **Series Author - Yolanda Paptie**
 
+_August 2016_
+
+Hard Copy Submitted to Create Space:
+Life Imitates Art, Tier III: Cake
+Title ID: 6542360
+ISBN-13: 978-1537423944
+
+Naming conventions identified
+
+Supplies Acquired
+
+Note Taking/Advertising for Tier II (Facebook and Twitter)
 
 _June 2016_
 
