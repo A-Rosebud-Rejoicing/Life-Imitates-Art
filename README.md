@@ -5,6 +5,7 @@ _Autobiographical Fairy Tale Series - Product Management_
 **Series Author - Yolanda Paptie**
 
 _September 2016_
+
 Hard Copy linked to eBook
 
 Begin Writing
