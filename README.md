@@ -3,6 +3,19 @@
 _Autobiographical Fairy Tale Series - Product Management_
 
 **Series Author - Yolanda Paptie**
+_January 2017_
+
+Published 
+Live Imitates Art, Tier II: Dinner
+https://www.createspace.com/6834794
+ISBN-13: 978-1542334259 
+ISBN-10: 154233425X 
+
+_December 2016_
+Published
+Two Black Eyes: A brief look into the original title. 
+ISBN-13: 978-1540363558
+ISBN-10: 1540363554 
 
 _September 2016_
 
