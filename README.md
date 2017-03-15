@@ -4,11 +4,26 @@ _Autobiographical Fairy Tale Series - Product Management_
 
 **Series Author - Yolanda Paptie**
 
+_March 2017_
+
+Published 
+
+Life Imitates Art, Tier II: Dinner, Second Edition
+
+Paperback: https://www.createspace.com/6998961
+
+eBook:  https://www.amazon.com/dp/B06XJN1XYC
+
+ISBN-13: 978-1544615103 
+
+ISBN-10: 1544615108 
+
+
 _January 2017_
 
 Published 
 
-Live Imitates Art, Tier II: Dinner
+Life Imitates Art, Tier II: Dinner
 
 https://www.createspace.com/6834794
 
