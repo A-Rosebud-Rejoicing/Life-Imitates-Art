@@ -4,6 +4,16 @@ _Autobiographical Fairy Tale Series - Product Management_
 
 **Series Author - Yolanda Paptie**
 
+_April 2018_
+
+Published 
+
+Howard Herman (Xenos)
+
+eBook: https://www.amazon.com/Howard-Herman-Xenos-Life-Imitates-ebook/dp/B07C2NVP2W/ref=sr_1_1?s=digital-text&ie=UTF8&qid=1525965644&sr=1-1
+
+ASIN: B07C2NVP2W
+
 _March 2017_
 
 Published 
